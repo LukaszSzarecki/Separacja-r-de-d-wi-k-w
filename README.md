@@ -1,1 +1,1 @@
-# Separacja-r-de-d-wi-k-w
+# Separacja__zrodel_dzwiekow
